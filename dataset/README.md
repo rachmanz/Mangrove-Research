@@ -1,0 +1,1 @@
+Ini merupakan kumpulan dari dataset yang akan digunakan seterusnya untuk melakukan penelitian yang ada di daerah ekowisata Cuku NyiNyi.
